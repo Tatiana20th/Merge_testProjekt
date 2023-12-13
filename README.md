@@ -7,3 +7,6 @@ Und hier der Micha
 Ich habe noch etwas zu sagen....
 
 und zwar heute ist mittwoch!
+
+
+Meine Fueße sind kalt!
